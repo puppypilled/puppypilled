@@ -4,9 +4,10 @@ DNI: IF UNDER 13 OR OVER LIKE.. 40, If youre mean for no reason, evil, think pan
 C+H , INT! , I DONT CARE IF YOUR PIXELS TOUCH MINE!!!!! .   would perfer if you dont cover my pony but its okay if you do!
 
 u cannot rage bait me (because I dont care)
-# 
 
-# cis female , 16 , roman catholic , vegan for the animals , straight but LGBT ally! , Im really awkward and shy.. sorry lol. , ALSO really bad at spelling. idk i think somethings wrong with me (/silly)
+16 years old , vegan 4 the animals , female , catholic (no im not homophobic????? LOL?) , cishet female , libsharted 😢 , i like  mimes, minstrels, thespians, acrobats, jugglers, troubadours, tumblers, Flutists and I really love jesters.
+
+# Im really awkward and shy.. sorry lol. , ALSO really bad at spelling. idk i think somethings wrong with me (/silly)
 
 
 
