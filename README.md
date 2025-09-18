@@ -1,7 +1,7 @@
 # pony town bio thingy ma boop #
 DNI: IF UNDER 13 OR OVER LIKE.. 40, If youre mean for no reason, evil, think pancakes are better than waffles (/s) 
 
-C+H , INT!  .   would perfer if you dont cover my pony but its okay if you do!
+C+H , INT! , I DONT CARE IF YOUR PIXELS TOUCH MINE!!!!! .   would perfer if you dont cover my pony but its okay if you do!
 
 u cannot rage bait me (because I dont care)
 # 
