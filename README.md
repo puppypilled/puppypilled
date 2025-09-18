@@ -1,16 +1,26 @@
-## Hi there 👋
+# pony town bio thingy ma boop #
+DNI: IF UNDER 13 OR OVER LIKE.. 40, If youre mean for no reason, evil, think pancakes are better than waffles (/s) 
 
-<!--
-**puppypilled/puppypilled** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+C+H , INT!  .   would perfer if you dont cover my pony but its okay if you do!
 
-Here are some ideas to get you started:
+u cannot rage bait me (because I dont care)
+# 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# cis female , 16 , roman catholic , vegan for the animals , straight but LGBT ally! , Im really awkward and shy.. sorry lol. , ALSO really bad at spelling. idk i think somethings wrong with me (/silly)
+
+
+
+# HASHTAG CRINGE AND PROUD :3 
+I mostly cosplay on here! usually off tab too. (I like the music and leave it on in the background when I work) so if i ignore you i'm sorry!!!
+
+will make this look more pretty l8r..
+
+have a good day/night drink lots of water!! okokok bye and thanks 4 reading!!
+
+
+
+
+
+![b9f3a2c12b9cfd409858b67991ca21bf](https://github.com/user-attachments/assets/a2851864-f63f-45d8-8432-d6057f39332b)
+
+The Pink Jester by *EMedina13 on deviantART
