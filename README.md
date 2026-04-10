@@ -10,4 +10,4 @@
    hi guys. i like. um. a lot of stuff yea.
    PLEASE interact with me i promise i dont bite im just socially awkward and nervous... i just get so nervy! heh,,
 
-   also ummummm um im a fictionkin.. majorly cosmo and ze... i go by any of those names 2.. OR JASPER OR PUPPY okayokay
+   also ummummm um im a fictionkin.. if my skin has anything w/ fictk in it, please call me by that name ^_^
