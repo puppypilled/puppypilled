@@ -8,6 +8,6 @@
 
 
    hi guys. i like. um. a lot of stuff yea.
-   PLEASE interact with me i promise i dont bite im just socially awkward and nervous... i just get so nervy! heh,,
+   PLEASE interact with me i promise i dont bite im just socially awkward and nervous......
 
-   also ummummm um im a fictionkin.. if my skin has anything w/ fictk in it, please call me by that name ^_^
+plural..lll.. call by skin name THX
