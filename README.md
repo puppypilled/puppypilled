@@ -11,3 +11,4 @@
    PLEASE interact with me i promise i dont bite im just socially awkward and nervous......
 
 plural..lll.. call by skin name THX
+^^ seven and ze main fronters ,, dbls int !!
